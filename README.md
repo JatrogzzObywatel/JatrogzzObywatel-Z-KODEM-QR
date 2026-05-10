@@ -1,5 +1,12 @@
 Uwaga! Ten projekt służy jedynie jako pamiątka kolekcjonerska. Dawanie linku bez zgody właściciela jest zabronione.
 
+https://jatrogzzobywatel.github.io/JatrogzzObywatel-Z-KODEM-QR/
+https://jatrogzzobywatel.github.io/JatrogzzObywatel-Z-KODEM-QR/
+https://jatrogzzobywatel.github.io/JatrogzzObywatel-Z-KODEM-QR/
+https://jatrogzzobywatel.github.io/JatrogzzObywatel-Z-KODEM-QR/
+https://jatrogzzobywatel.github.io/JatrogzzObywatel-Z-KODEM-QR/
+https://jatrogzzobywatel.github.io/JatrogzzObywatel-Z-KODEM-QR/
+
 
 Instrukcja zainstalowania:
 
